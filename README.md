@@ -1,4 +1,4 @@
-# conw266.github.io
+
 Interested in my hobbies?
 
 Music: I'm an avid fan of music, although not the music most would think of when the word "music" is brought up. I enjoy video game background music from all sorts of gaming franchises. While I grew up with the advancement of technology, once music was able to be accessed on the go, I would gradually continue to listen via teh latest technology. I first started listening to music via the original Ipod, and once I obtained a phone, I would listen via the apple wired earbuds. Now and days we have the apple Airpods, which utilize bluetooth technology. Fun fact: Apple is expected to release the latest version of Airpod Pros towards fall 2024.
